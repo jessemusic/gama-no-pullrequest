@@ -18,4 +18,7 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+Olá sou o Jesse Caetano dos Santos
+O curso da Gama Academy é fantástico. Estou revisando e aprendendo muito.
+É uma escola que prepara e se preocupa com a formação do profissional desenvolvedor. 
+Parabéns a toda a equipe!
